@@ -1,0 +1,1 @@
+Anki deck for vocabulary relating to startups.
